@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @passivexp
+- 👀 I’m interested in research
+- 🌱 I’m currently learning digital skills and blockchain
+- 💞️ I’m looking to collaborate on unique opportunities
+- 📫 How to reach me @pkconsulting 
